@@ -203,6 +203,8 @@
 1. Everyone who believes that Jesus is the Christ has been born of God, and everyone who loves the Father loves whoever has been born of him.
 2. By this we know that we love the children of God, when we love God and obey his commandments.
 3. For this is the love of God, that we keep his commandments. And his commandments are not burdensome.
+
+   > Obedience is an indicator of the love for God. When there is no obedience, submission and keeping God's commandments, there is a lack of love for God. To love God is to deny one's feeling and do what is righteous in the eyes of God. 
 4. For everyone who has been born of God overcomes the world. And this is the victory that has overcome the world — our faith.
 5. Who is it that overcomes the world except the one who believes that Jesus is the Son of God?
 6. This is he who came by water and blood — Jesus Christ; not by the water only but by the water and the blood. And the Spirit is the one who testifies, because the Spirit is the truth.

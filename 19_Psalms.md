@@ -2690,6 +2690,8 @@
 98. Your commandment makes me wiser than my enemies, for it is ever with me.
 99. I have more understanding than all my teachers, for your testimonies are my meditation.
 100. I understand more than the aged, for I keep your precepts.
+
+     > Obedience in the word of God and his precepts is the way to growth. Spiritual growth is not about age, experience, or knowledge, but maturity while trained with obedience.
 101. I hold back my feet from every evil way, in order to keep your word.
 102. I do not turn aside from your rules, for you have taught me.
 103. How sweet are your words to my taste, sweeter than honey to my mouth!

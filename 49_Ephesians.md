@@ -141,6 +141,8 @@
 8. For by grace you have been saved through faith. And this is not your own doing; it is the gift of God,
 9. not a result of works, so that no one may boast.
 10. For we are his workmanship, created in Christ Jesus for good works, which God prepared beforehand, that we should walk in them.
+
+    > God knows what people are created for even before people are created, to be his workman, to do good work and take responsibility.
 11. Therefore remember that at one time you Gentiles in the flesh, called the uncircumcision by what is called the circumcision, which is made in the flesh by hands —
 12. remember that you were at that time separated from Christ, alienated from the commonwealth of Israel and strangers to the covenants of promise, having no hope and without God in the world.
 13. But now in Christ Jesus you who once were far off have been brought near by the blood of Christ.

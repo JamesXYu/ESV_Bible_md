@@ -595,6 +595,8 @@
 8. And he said, Hagar, servant of Sarai, where have you come from and where are you going? She said, I am fleeing from my mistress Sarai.
 9. The angel of the Lord said to her, Return to your mistress and submit to her.
 10. The angel of the Lord also said to her, I will surely multiply your offspring so that they cannot be numbered for multitude.
+
+    > Hagar had Abraham's child that was not promised and she had every right to run away from Sarah's abuse and mistreatment. Yet God told her to go back to the Sarah in submission. God is not cruel to intentionally let Hagar suffer, but to teach her a lesson to be obedience even in the difficult situation. God sees the obedience and God multipled her offspring that was not part of his plan. Even under unrighteous leadership, God still blesses submission.
 11. And the angel of the Lord said to her, Behold, you are pregnant and shall bear a son. You shall call his name Ishmael, because the Lord has listened to your affliction.
 12. He shall be a wild donkey of a man, his hand against everyone and everyone’s hand against him, and he shall dwell over against all his kinsmen.
 13. So she called the name of the Lord who spoke to her, You are a God of seeing, for she said, Truly here I have seen him who looks after me.
