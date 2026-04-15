@@ -658,6 +658,8 @@
 20. Then Miriam the prophetess, the sister of Aaron, took a tambourine in her hand, and all the women went out after her with tambourines and dancing.
 21. And Miriam sang to them: Sing to the Lord, for he has triumphed gloriously; the horse and his rider he has thrown into the sea.
 22. Then Moses made Israel set out from the Red Sea, and they went into the wilderness of Shur. They went three days in the wilderness and found no water.
+
+    > Moses lead the people of Israel through the red sea which is an Old Testamnent foreshadowing of baptism. Just as Jesus went through a 40 day temptation after being baptised, the Israelites got into the wilderness for 40 years after crossing the red sea. God can choose to bring the people straight into the promise land, but God used the wilderness as a filter that only 2 out of 2 million made it into the promise land. 
 23. When they came to Marah, they could not drink the water of Marah because it was bitter; therefore it was named Marah.
 24. And the people grumbled against Moses, saying, What shall we drink?
 25. And he cried to the Lord, and the Lord showed him a log, and he threw it into the water, and the water became sweet. There the Lord made for them a statute and a rule, and there he tested them,
@@ -1309,6 +1311,8 @@
 
 1. Moses assembled all the congregation of the people of Israel and said to them, These are the things that the Lord has commanded you to do.
 2. Six days work shall be done, but on the seventh day you shall have a Sabbath of solemn rest, holy to the Lord. Whoever does any work on it shall be put to death.
+
+   > All throughout the book of Exodus, the Lord consistently tell his people to take the Sabbath. It is a command from God not a suggestion that everyone shall obey. Sabbath means rest. Israelites were slaves for voer 400 years in Egypt, and for slaves, the more work is done, the more reward. God kept telling his people that they are not slaves anymore, but saved and they should use the time of rest to worship God. God's people means more than their productivity.
 3. You shall kindle no fire in all your dwelling places on the Sabbath day.
 4. Moses said to all the congregation of the people of Israel, This is the thing that the Lord has commanded.
 5. Take from among you a contribution to the Lord. Whoever is of a generous heart, let him bring the Lord ’s contribution : gold, silver, and bronze;
